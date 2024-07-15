@@ -1,45 +1,48 @@
 The Acid
 
 <pre>
-Easy, easy
-To lead me, to kill me
-A desire, for you to
-Not set myself on fire
+Easy, easy                                      Easy, easy
+To lead me, to kill me                          It begs me while I’m sleeping
+A desire, for you to                            A desire, second chance
+Not set myself on fire                          I have set myself on fire
 
-It’s easy
-To mess with me
-To kill me
-As I die, gondolas¹
-As you set my lungs on fire
+It’s easy                                       It’s easy
+To mess with me                                 Don’t mess with me
+To kill me                                      Don’t mess with me
+As I die, gondolas¹                             As I die in the flames
+As you set my lungs on fire                     As I set myself on fire
 
-Fills my lungs with acid²
-My lungs with
-Kills me with acid
-It kills me
+                                                Uh
+Fills my lungs with acid²                       Wakes me from my sleep
+My lungs with                                   Smoke wakes me from
+Kills me with acid                              Wakes me from my sleep
+It kills me                                     Smoke wakes me from
+                                                Yeah, yeah, yeah, yeah
 
-I want to revolution
+I want to revolution                            A one true revolution
 
-Burns me through my lungs
-Acid burns me through my lungs
-Gas burns me
+Burns me through my lungs                       Wakes me from my sleep
+Acid burns me through my lungs                  Smoke wakes me from my sleep
+Acid burns me                                   Smoke wakes me
 
-It’s easy to kill me
-You should give our lives another chance
+It’s easy to kill me                            It’s easy to leave me
+You should give our lives another chance        We should give ourselves another chance
 
-Let go of your theory
-Of our suppress
-Our suppression
+Let go of your belief                           Let go of our troubles
+Of our suppress                                 Into our caress
+Our suppression                                 Our caress
 
-And you set our lives on fire
-You set our lives on fire
+And you set our lives on fire                   And we set ourselves on fire
+You set our lives on fire                       We set ourselves on fire
 
-Burns me through my lungs
-Acid burns me
-Burns me through my lungs
-Acid burns me
-Burns me through my lungs
-Acid burns me through my lungs
-Acid burns me through my lungs
+Burns me through my lungs                       Wakes me from my sleep
+Acid burns me                                   Smoke wakes me from
+Burns me through my lungs                       Wakes me from my sleep
+Acid burns me                                   Smoke wakes me from
+Burns me through my lungs                       Wakes me from my sleep
+Acid burns me through my lungs                  Smoke wakes me from my sleep
+Acid burns me through my lungs                  Smoke wakes me from my sleep
+                                                Yeah
 </pre>
 
 ---
@@ -48,4 +51,4 @@ Acid burns me through my lungs
 
 ¹ A “gondola” in this context refers to the large, basket-like structure pigs are herded into, which are then lowered into a stunning chamber for gassing before being bled to death. [What are the animal welfare issues associated with different stunning methods for pigs at slaughter?](https://kb.rspca.org.au/knowledge-base/what-are-the-animal-welfare-issues-associated-with-different-stunning-methods-for-pigs-at-slaughter/), RSPCA Australia
 
-² When combined with O₂ in a pig’s (and human’s) lungs, CO₂ dissolves into carbonic acid. [Wayne Hsung Lecture on Open Rescue](https://www.youtube.com/watch?v=3BvPS2vydX4&t=1200s)
+² When combined with O₂ in a pig’s — and human’s — lungs, CO₂ dissolves into carbonic acid. [Wayne Hsung Lecture on Open Rescue](https://www.youtube.com/watch?v=3BvPS2vydX4&t=1200s)
