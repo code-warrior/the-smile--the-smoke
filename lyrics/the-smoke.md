@@ -27,6 +27,7 @@ Smoke wakes me
 
 It’s easy to leave me
 We should give ourselves another chance
+
 Let go of our troubles
 Into our caress
 Our caress
