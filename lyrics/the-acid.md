@@ -51,4 +51,4 @@ Acid burns me through my lungs                  Smoke wakes me from my sleep
 
 ¹ A “gondola” in this context refers to the large, basket-like structure pigs are herded into, which are then lowered into a stunning chamber for gassing before being bled to death. [What are the animal welfare issues associated with different stunning methods for pigs at slaughter?](https://kb.rspca.org.au/knowledge-base/what-are-the-animal-welfare-issues-associated-with-different-stunning-methods-for-pigs-at-slaughter/), RSPCA Australia
 
-² When combined with O₂ in a pig’s — and human’s — lungs, CO₂ dissolves into carbonic acid. [Wayne Hsung Lecture on Open Rescue](https://www.youtube.com/watch?v=3BvPS2vydX4&t=1200s)
+² When combined with O₂ in a pig’s — and human’s — lungs, CO₂ dissolves into carbonic acid. [Wayne Hsiung Lecture on Open Rescue](https://www.youtube.com/watch?v=3BvPS2vydX4&t=1200s)
