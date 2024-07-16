@@ -1,4 +1,4 @@
-The Acid
+Acid
 
 <pre>
 Easy, easy                                      Easy, easy
